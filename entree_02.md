@@ -6,13 +6,13 @@ Exemple:
 ### [Bulle](https://www.onf.ca/interactif/bulle/) 
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
-### Lien 1 
+### [Blade Runner 2049](https://www.imdb.com/title/tt1856101/)
 Expliquer pourquoi vous avez choisi ce lien. 
 
-### Lien 2 
+### [Metro 2033](https://en.wikipedia.org/wiki/Metro_2033_(novel))
 Expliquer pourquoi vous avez choisi ce lien.
 
-### Lien 3 
+### [Hyper Light: Drifter](https://store.steampowered.com/app/257850/Hyper_Light_Drifter/)
 Expliquer pourquoi vous avez choisi ce lien.  
 
 ### Lien 4 
