@@ -2,13 +2,13 @@
 ## Plan de carrière
 
 ### Présentation
-Parlez de vous. 
+Parlez de vous. photo, 3D, musique
 
 ### Intérêts dans le domaine
 Parlez de vos intérêts en multimédia. 
 
 ### Emplois qui vous intéressent
-Nommez deux emplois.
+Nommez deux emplois. 
 
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
